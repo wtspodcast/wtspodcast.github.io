@@ -1,3 +1,3 @@
-#Announcements
+# Announcements
 
-##Expect some podcasts coming in December InshaAllah.
+## Expect some podcasts coming in December InshaAllah.
