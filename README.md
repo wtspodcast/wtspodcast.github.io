@@ -1,1 +1,3 @@
-##THIS SITE IS STILL BEING CODED
+#Announcements
+
+##Expect some podcasts coming in December InshaAllah.
